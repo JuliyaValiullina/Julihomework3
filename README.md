@@ -4,4 +4,4 @@ My name Juli
 
 I study in Netology
 
-![Uploading 20220509_221051.jpg…]()
+https://www.petrovskiy.ru/catalog/new/omoda/omoda-s5/2262313/
