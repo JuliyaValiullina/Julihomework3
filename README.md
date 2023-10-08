@@ -4,4 +4,5 @@ My name Juli
 
 I study in Netology
 
-https://www.petrovskiy.ru/catalog/new/omoda/omoda-s5/2262313/
+
+![20220509_221051](https://github.com/JuliyaValiullina/Julihomework3/assets/140812943/045ec54e-3503-4f3a-9168-c8471dff3213)
